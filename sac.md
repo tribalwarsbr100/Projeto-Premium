@@ -1,4 +1,4 @@
-[ＳＡＣ 𝕋𝕎 𝟙𝟘𝟘](https://www.youtube.com/c/TW100TRIBALWARS)
+[𝕊𝔸ℂ 𝕋𝕎 𝟙𝟘𝟘](https://www.youtube.com/c/TW100TRIBALWARS)
 =============
 <img align="right" src="https://docs-assets.developer.apple.com/turicreate/turi-dog.svg" alt="Turi Create" width="100">
 
