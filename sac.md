@@ -1,4 +1,4 @@
-[ＳＥＲＶＩＣＯ ＤＥ ＡＴＥＮＤＩＭＥＮＴＯ ＡＯ ＣＬＩＥＮＴＥ](https://www.youtube.com/c/TW100TRIBALWARS)
+[ＳＡＣ †ω 100](https://www.youtube.com/c/TW100TRIBALWARS)
 =============
 <img align="right" src="https://docs-assets.developer.apple.com/turicreate/turi-dog.svg" alt="Turi Create" width="100">
 
